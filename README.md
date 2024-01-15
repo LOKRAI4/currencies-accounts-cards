@@ -1,5 +1,5 @@
 
-digital currencies accounted applications policies term.
+digital currencies accounted applications term.
 
 a applications they generated social media interactive base jobs and employment.
 
