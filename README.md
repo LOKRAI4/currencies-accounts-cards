@@ -1,2 +1,2 @@
 # provided-currencies-accounts-cards
-family term per trillions in accounts
+family policies term accounts per trillions USD in 
