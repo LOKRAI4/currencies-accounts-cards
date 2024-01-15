@@ -14,9 +14,9 @@ timely add usd amounts
 
 provide premiums cards
 
-payments subscriptions billing 
+payments billing subscriptions
 
-productions 'example'
+companies productions'
 
 mail,company names yahoo'
 
@@ -26,7 +26,7 @@ gmail, company names Google'
 
 daily companies revenue collect as accessbase 
 
-per users transactions 10 000,00,K 
+10K per users transactions  
  
 data'policies terms and conditions 
 
