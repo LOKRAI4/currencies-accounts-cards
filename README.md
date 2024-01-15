@@ -4,9 +4,9 @@ digital currencies accounted applications policies term. and organizations appli
 algorithms demo database
 
  
-contacts phone IP addresss 
+name acccounts phone IP addresss contact
 
-erganizations provide premiums accounts cards
+erganizations provide premiums cards
 
 payments subscriptions billing 
 
