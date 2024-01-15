@@ -10,9 +10,9 @@ IP addresss contact
 
 currencies budgets organizations 
  
-amounts add in users accounts '
+amounts add in digital users accounts '
 
-provide payments cards 
+provide digital cards 
 
 payments billing and subscriptions 
 
