@@ -9,12 +9,12 @@ name acccounts phone
 IP addresss contact
 
 currencies budgets organizations 
+ 
+amounts add in users accounts '
 
-timely add usd amounts
+provide payments cards 
 
-provide premiums cards
-
-payments billing subscriptions
+payments billing and subscriptions 
 
 companies productions'
 
@@ -24,9 +24,9 @@ email, company names Mircosoft'
 
 gmail, company names Google'
 
-daily companies revenue collect as accessbase 
+companies revenue collect as accessbase 
 
-10K per users transactions  
+per users transactions 10K  
  
-data'policies terms and conditions 
+policies terms and conditions 
 
