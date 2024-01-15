@@ -4,9 +4,15 @@ digital currencies accounted applications policies term. and organizations appli
 new data algorithms demo
 
  
-name acccounts phone IP addresss contact
+name acccounts phone 
 
-erganizations provide premiums cards
+IP addresss contact
+
+currencies budgets organizations 
+
+timely add usd amounts
+
+provide premiums cards
 
 payments subscriptions billing 
 
@@ -18,7 +24,9 @@ email, company names Mircosoft'
 
 gmail, company names Google'
 
-daily companies revenue collect as user accessbase 
+daily companies revenue collect as accessbase 
 
+per users transactions 10 000,00,K 
+ 
 data'policies terms and conditions 
 
