@@ -8,7 +8,7 @@ contacts phone IP addresss
 
 erganizations provide premiums accounts cards
 
-daily payments subscriptions billing 
+payments subscriptions billing 
 
 productions 'example'
 
@@ -18,7 +18,7 @@ email company names Mircosoft'
 
 gmail company names Google'
 
-companies eachs collect revenue 
+companies daily collect revenue 
 
 database terms and conditions 
 
