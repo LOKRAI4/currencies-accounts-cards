@@ -24,7 +24,7 @@ email, company names Mircosoft'
 
 gmail, company names Google'
 
-companies revenue collect as accessbase 
+companies revenue collect in accessbase
 
 per users transactions 10K  
  
