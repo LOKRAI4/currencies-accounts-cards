@@ -11,7 +11,7 @@ and generate globally large numbers of users employments database
 
 users budgets $'one'trillions 00'USD in per accounts
 
-applications links creat ranks here generate'in second billions ouser an save informations 
+applications links creat ranks here generate'in second billions user 
 
 the core digital payments cards.
 
