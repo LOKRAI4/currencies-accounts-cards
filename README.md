@@ -20,5 +20,5 @@ gmail company names Google'
 
 companies daily collect revenue 
 
-database terms and conditions 
+new data' policies terms and conditions 
 
