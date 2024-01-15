@@ -18,7 +18,7 @@ email company names Mircosoft'
 
 gmail company names Google'
 
-companies daily collect revenue 
+daily companies revenue collect as user visitbase 
 
 new data' policies terms and conditions 
 
