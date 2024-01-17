@@ -29,18 +29,13 @@ microsoft'apple'amazon
 
 facebook'twitter'tiktok'yahoo'
 
-all their premium site.
+all premium site available.
 
-database
-
- 
 IT acccounts identities 
 
 IP addresss 
 
-currencies budgets  '
-
-digital cards 
+budgets digital cards 
 
 payments billing and subscriptions 
 
