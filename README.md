@@ -17,11 +17,11 @@ cards revenue add operate
 
 free onlines shopping 
 
-costs transaction
+IT transaction costs
 
-collaborate with price purchase data  
+collaborate with price purchase 
 
-companys there name google' 
+companys name google' 
 
 microsoft apple amazon '
 
