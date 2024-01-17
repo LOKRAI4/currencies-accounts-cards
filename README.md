@@ -19,7 +19,7 @@ free onlines shopping
 
 IT transaction costs
 
-collaborate with price purchase 
+collaborate with IT purchase 
 
 companys name  
 
