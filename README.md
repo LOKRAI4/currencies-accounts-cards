@@ -35,7 +35,7 @@ IP addresss
 
 payments billing and subscriptions 
 
-companies productions'
+productions'
 
 co pilot company name github'
 
@@ -44,8 +44,6 @@ mail,names yahoo'
 email, names Mircosoft'
 
 gmail, names Google'
-
-completelly structure revenue data 
 
 per accessbase 10K  
  
