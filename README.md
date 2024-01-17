@@ -11,9 +11,7 @@ daily IT budget $'ten millions'
 
 transfer each IT accounts 
 
-fiance IT IDENTITIES 
-
-cards revenue add automous 
+fiance revenue automous 
 
 free onlines shopping 
 
