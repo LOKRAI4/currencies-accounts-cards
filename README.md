@@ -1,9 +1,11 @@
 
 digital currencies IT applications term.
 
-social media interactive 
+social mediabase 
 
- IT works an employment. 
+interactive screens devices
+
+IT works an employment. 
 
 employer IT identities cards
 
