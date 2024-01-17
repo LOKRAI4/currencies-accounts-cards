@@ -27,9 +27,9 @@ microsoft apple amazon '
 
 facebook twitter tiktok yahoo'
 
-all premium site available.
+IT acccounts access premium  
 
-IT acccounts identities 
+scan real IT available 
 
 IP addresss 
 
