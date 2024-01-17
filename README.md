@@ -21,9 +21,13 @@ free onlines shopping
 
 costs transaction
 
-collaborate with those companys there name google' 
+collaborate with those 
 
-microsoft'apple'amazon'facebook'twitter'tiktok'yahoo'
+companys there name google' 
+
+microsoft'apple'amazon 
+
+facebook'twitter'tiktok'yahoo'
 
 all their premium site.
 
@@ -50,9 +54,9 @@ email, company names Mircosoft'
 
 gmail, company names Google'
 
-companies revenue collect in accessbase
+companies revenue collect newdata 
 
-per users transactions 10K  
+per accessbase 10K  
  
 policies terms and conditions 
 
