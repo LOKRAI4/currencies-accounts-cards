@@ -7,7 +7,7 @@ social media interactive
 
 employer IT identities cards
 
-daily budget cards $'ten millions' 
+daily IT budget $'ten millions' 
 
 transfer each IT accounts 
 
