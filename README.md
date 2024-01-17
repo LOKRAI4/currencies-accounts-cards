@@ -3,13 +3,15 @@ digital currencies IT applications term.
 
 social media interactive 
 
-works and employment. 
+ IT works an employment. 
 
 employer IT identities cards
 
-budget cards $'one'trillions 
+daily budget cards $'ten millions' 
 
 transfer each IT accounts 
+
+fiance IT IDENTITIES cards create revenue add
 
 free onlines shopping 
 
