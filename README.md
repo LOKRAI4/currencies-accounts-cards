@@ -21,11 +21,11 @@ IT transaction costs
 
 collaborate with price purchase 
 
-companys name google' 
+companys name  
 
-microsoft apple amazon '
+ apple amazon '
 
-facebook twitter tiktok yahoo'
+facebook twitter tiktok '
 
 IT acccounts access premium  
 
