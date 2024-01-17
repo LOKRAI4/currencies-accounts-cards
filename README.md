@@ -38,6 +38,8 @@ payments billing and subscriptions
 
 companies productions'
 
+co pilot company name github'
+
 mail,company names yahoo'
 
 email, company names Mircosoft'
