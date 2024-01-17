@@ -45,7 +45,7 @@ email, names Mircosoft'
 
 gmail, names Google'
 
-companies revenue new'data 
+completelly structure revenue data 
 
 per accessbase 10K  
  
