@@ -1,9 +1,9 @@
 
 digital currencies IT applications term.
 
-social mediabase 
+social media base
 
-interactive screens devices
+screens devices interactive 
 
 IT works an employment. 
 
@@ -11,9 +11,9 @@ employer IT identities cards
 
 daily IT budget $'ten millions' 
 
-transfer each IT accounts 
+transfer amounts each IT accounts 
 
-fiance revenue automous 
+create secure fiance
 
 free onlines shopping 
 
