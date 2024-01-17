@@ -39,11 +39,11 @@ companies productions'
 
 co pilot company name github'
 
-mail,company names yahoo'
+mail,names yahoo'
 
-email, company names Mircosoft'
+email, names Mircosoft'
 
-gmail, company names Google'
+gmail, names Google'
 
 companies revenue new'data 
 
