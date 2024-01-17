@@ -9,15 +9,17 @@ employer IT identities cards
 
 applications productions 
 
-billion large number in second tool
+large customers accessuser 
+
+secondlly transfer database
 
 users budgets $'one'trillions 
 
-00'USD in per accounts
+00'USD in per accounts.
 
-links creat core digital cards.
+free onlines shopping 
 
-onlines shopping buying and paying costs transaction
+costs transaction
 
 collaborate with those companys there name google' 
 
