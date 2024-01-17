@@ -8,8 +8,6 @@ works and employment.
 employer IT identities cards
 
 budgets personal cards
- 
-applications productions 
 
 customers accessuser $'one'trillions 
 
