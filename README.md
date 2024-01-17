@@ -1,38 +1,40 @@
 
 digital currencies accounted applications term.
 
-a applications they generated social media interactive base jobs and employment.
+social media interactive 
 
-works payments transactions users accounts.
+base works and employment. 
 
-applications focus companies productions tool.
+employer IT identities cards
+
+applications productions 
+
+billion large number in second tool
+
+users budgets $'one'trillions 
+
+00'USD in per accounts
+
+links creat core digital cards.
+
+onlines shopping buying and paying costs transaction
+
+collaborate with those companys there name google' 
+
+microsoft'apple'amazon'facebook'twitter'tiktok'yahoo'
+
+all their premium site.
+
+database
+
  
-generate globally large numbers of users employments database
+IT acccounts identities 
 
-users budgets $'one'trillions 00'USD in per accounts
+IP addresss 
 
-applications links creat ranks generate'in second billions user 
+currencies budgets  '
 
-the core digital payments cards.
-
-shopping'buying and paying costs transactions data
-
-than collaborate with those companys there name google' 
-
-microsoft'apple'amazon'facebook'twitter'tiktok'yahoo'all their premium site.
-
-data algorithms 
-
- 
-name acccounts phone 
-
-IP addresss contact
-
-currencies budgets organizations 
- 
-amounts add in digital users accounts '
-
-provide digital cards 
+digital cards 
 
 payments billing and subscriptions 
 
