@@ -7,9 +7,7 @@ works and employment.
 
 employer IT identities cards
 
-budgets personal cards
-
-customers accessuser $'one'trillions 
+budget cards $'one'trillions 
 
 transfer each IT accounts 
 
@@ -17,7 +15,7 @@ free onlines shopping
 
 costs transaction
 
-collaborate with those 
+collaborate with price purchase data  
 
 companys there name google' 
 
