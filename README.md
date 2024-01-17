@@ -11,7 +11,9 @@ daily budget cards $'ten millions'
 
 transfer each IT accounts 
 
-fiance IT IDENTITIES cards create revenue add
+fiance IT IDENTITIES 
+
+cards revenue add operate 
 
 free onlines shopping 
 
