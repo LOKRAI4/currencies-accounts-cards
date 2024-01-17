@@ -13,7 +13,7 @@ transfer each IT accounts
 
 fiance IT IDENTITIES 
 
-cards revenue add operate 
+cards revenue add automous 
 
 free onlines shopping 
 
