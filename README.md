@@ -11,9 +11,9 @@ budgets personal cards
  
 applications productions 
 
-large customers accessuser 
- 
-$'one'trillions transfer each IT accounts 
+customers accessuser $'one'trillions 
+
+transfer each IT accounts 
 
 free onlines shopping 
 
