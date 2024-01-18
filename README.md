@@ -17,13 +17,11 @@ $'ten millions'
 
 transfer amounts each IT accounts
 
-IT auto create needed economics
+create needed economics
 
 free onlines shopping 
 
-IT transaction costs
-
-collaborate with IT purchase 
+IT transaction costs an purchase 
 
 companys name  
 
