@@ -1,19 +1,23 @@
 
 digital currencies IT applications term.
 
-social media base
+social media 
 
-screens devices interactive 
+internets applications
 
-IT works an employment. 
+devices interactive 
 
-employer IT identities cards
+IT producess works an employment. 
 
-daily IT budget $'ten millions' 
+employer IT digital cards
 
-transfer amounts each IT accounts 
+daily IT budget 
 
-IT auto create needed fiance
+$'ten millions' 
+
+transfer amounts each IT accounts
+
+IT auto create needed economics
 
 free onlines shopping 
 
