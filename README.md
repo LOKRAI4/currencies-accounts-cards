@@ -13,7 +13,7 @@ daily IT budget $'ten millions'
 
 transfer amounts each IT accounts 
 
-IT auto create fiance needed
+IT auto create needed fiance
 
 free onlines shopping 
 
