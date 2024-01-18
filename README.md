@@ -1,5 +1,7 @@
 
-digital currencies IT applications term.
+digital currencies 
+
+IT applications term.
 
 social media 
 
