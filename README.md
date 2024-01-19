@@ -9,9 +9,7 @@ personal accounts
 
 needed economics org creates 
 
-revenue exchange applications
-
-costs transactions  
+revenue exchange applications 
 
 apple amazon '
 
@@ -22,6 +20,8 @@ scan IT accounts
 scan IP addresss 
 
 billing and subscriptions 
+
+costs transactions 
 
 devices interactive useraccess 
 
