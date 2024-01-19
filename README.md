@@ -25,13 +25,13 @@ costs transactions
 
 devices interactive useraccess 
 
-co pilot company name github'
+co pilot github'
 
-mail,names yahoo'
+mail, yahoo'
 
-email, names Mircosoft'
+email, Mircosoft'
 
-gmail, names Google'
+gmail,Google'
 
 per accessbase 10K  
  
