@@ -1,45 +1,29 @@
 
-digital currencies 
-
-IT applications term.
+digital currencies .
 
 social media 
 
-internets applications
+protocol application
 
-devices interactive 
+personal accounts
 
-IT producess works an employment. 
+needed economics org creates 
 
-employer IT digital cards
+revenue exchange applications
 
-daily IT budget 
+costs transactions  
 
-$'ten millions' 
-
-transfer amounts each IT accounts
-
-create needed economics
-
-free onlines shopping 
-
-IT transaction costs an purchase 
-
-companys name  
-
- apple amazon '
+apple amazon '
 
 facebook twitter tiktok '
 
-IT acccounts access premium  
+scan IT accounts 
 
-scan real IT available 
+scan IP addresss 
 
-IP addresss 
+billing and subscriptions 
 
-payments billing and subscriptions 
-
-productions'
+devices interactive useraccess 
 
 co pilot company name github'
 
